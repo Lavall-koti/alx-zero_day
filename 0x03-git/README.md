@@ -1,1 +1,1 @@
-alx curriculum is great
+alx has the best learning platform in africa
